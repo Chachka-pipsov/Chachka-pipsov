@@ -1,4 +1,4 @@
-# Hi, I'm Ekaterina! 👋
+# Hello, I'm Ekaterina! 👋
 
 I'm a third-year student at **RUDN University** interested in Product Analytics, Business Analytics and Product Management.
 
