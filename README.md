@@ -78,7 +78,7 @@ I'm currently improving my knowledge of:
 
 ## 📫 How to Reach Me
 
-- Telegram: **@Chacchka**
+- Telegram: **@tea_loveerr**
 - Discord: **chachkapipsov01**
 - Email: **prokopich70@gmail.com**
 
